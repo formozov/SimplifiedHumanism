@@ -1,2 +1,0 @@
-# SimplifiedHumanism
-Simplified humanism ethic
